@@ -1,4 +1,4 @@
-## Hi there 👋  Hi, I'm Ahmed
+## Hi there 👋  I'm Ahmed
 
 
 
